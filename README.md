@@ -13,6 +13,8 @@ Number of episodes: 13
 
 Aired: July 7, 1999	- September 29, 1999
 
+## roast chicken
+oo he's using a real mortar and pestle to combine all of the seasonings including the garlic
 
 # Season 2
 
