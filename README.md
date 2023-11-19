@@ -6,7 +6,9 @@ its on HBO with no commercials, i always wanted to watch all of it one day lol n
 
 so like an episode a couple of days or something like that
 
-each episode is 30 mins
+each episode is 30 mins, its good to watch at the gym
+
+im going to skip around the seasons
 
 # [Season 1](https://en.wikipedia.org/wiki/List_of_Good_Eats_episodes#Season_1_(1999))
 Number of episodes: 13
@@ -16,7 +18,13 @@ Aired: July 7, 1999	- September 29, 1999
 ## roast chicken
 oo he's using a real mortar and pestle to combine all of the seasonings including the garlic
 
+## french onion soup
+really want to make this, i read on wikipedia french onion soup can be made by also adding saffron 😍
+
 # Season 2
+
+## coffee
+yeahh im going to switch to coffee from espresso
 
 # Season 3
 
