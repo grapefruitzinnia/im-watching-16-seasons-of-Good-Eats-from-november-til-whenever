@@ -28,6 +28,9 @@ yeahh im going to switch to coffee from espresso
 
 # Season 3
 
+## pickles
+pickled pears are a real thing and apparently go well with ice cream, interesting!
+
 # Season 4
 
 # Season 5
